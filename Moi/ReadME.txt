@@ -8,4 +8,4 @@ De base je l'ai fais pour RealisCity mais je me suis dit que sa serez aussi cool
 
 Discord RealisCity :https://discord.gg/fHm5uCG5Sk
 
-Mon Discord : 7HJyMGwdNq
+Mon Discord : https://discord.gg/7HJyMGwdNq
